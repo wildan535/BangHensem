@@ -1,2 +1,0 @@
-# BangHensem
-YOUAREWELCOME
